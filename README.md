@@ -1,4 +1,4 @@
-# 💫 Hello everyone :
+# 💫 Hello everyone 🙋
 Aritra Here !<br><br>💻 Currently helping to build Cadpoint Kolkata<br>🔭 Interested in new techs<br>🎓Currently pursuing bachelors in Computer Science<br>💬 Love to discuss about new topics<br>
 
 
